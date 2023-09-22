@@ -1,0 +1,1 @@
+- Every one must claw there way to the top or be left behind 
